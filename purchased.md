@@ -7,4 +7,8 @@
 | Prizes (Photons) | 213.75 USD ~ 289.50 CAD| 
 | Water | $47.46 |
 | Shirts | $960.50 |
-| Total | $1501.1 |
+| Lunch | $500 (paid for) |
+| Dinner | $300 |
+| Total | $1801.1 |
+
+#####Total cost only includes costs that we are paying for
